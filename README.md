@@ -1,3 +1,3 @@
 # About Me
 
-My provile
+My profile
